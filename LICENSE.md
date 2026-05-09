@@ -1,4 +1,4 @@
-
+Enhance Obsidian for macOS with Obsidian for macOS professional Utility: goal tracking & quick search, the #1 utility. Includes goal tracking and quick search for a smoother
 
 
 
